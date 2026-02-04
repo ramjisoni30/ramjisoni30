@@ -1,4 +1,4 @@
-![Banner](./Brave downloads\PMDV\1759575145367.jpg)
+![Banner](./gWEL.JPG)
 
 # **Ramji Soni**  
 B.Tech Information Technology | Data Analytics & AI Enthusiast  
